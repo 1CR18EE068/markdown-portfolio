@@ -1,2 +1,2 @@
 this is my instagram account
-https://www.instagram.com/rahul_y_ada_v_10/
+[this is fyn](https://www.instagram.com/rahul_y_ada_v_10/)
